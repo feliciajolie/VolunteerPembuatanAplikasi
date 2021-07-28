@@ -10,3 +10,4 @@ Silakan gunakan format berikut:
 
 
 Berikut daftar Volunter yang diterima:
+-Jolie Felicia (https://www.linkedin.com/in/jolie-felicia-186900218/)
